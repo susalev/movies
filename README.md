@@ -8,7 +8,7 @@ It's somewhat different from other dances, especially traditional ballroom, but 
 
 Today, there are many styles of tango. You can dance the tango argentino, the ballroom tango, the finnish tango, the uruguayan tango, tango nuevo, vintage tango, and the chinese tango, among other styles. Although many different interpretations have appeared, the two main styles are the ballroom style and the Argentine style. The main difference between the two is that the second one has more sharp, staccato movements and the characteristic head snaps which are totally foreign for the dances coming from Argentine. 
 
-Tango is danced all around the world by people of all sizes and ages. Because the main requirement is walking, it is a dance for everyone. When it comes to Tango, the Zimbabwean proverb - If you can walk, you can dance – is absolutely on the spot.
+Tango is danced all around the world by people of all sizes and ages. Because the main requirement is walking, it is a dance for everyone. When it comes to Tango, the Zimbabwean proverb - __*If you can walk, you can dance*__ – is absolutely on the spot.
 
 ## Basic steps
 Tango is a walking dance, meaning that all the steps are based on walking. 
