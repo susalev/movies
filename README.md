@@ -17,7 +17,7 @@ When you start learning it, you must first master some basic movements. Don't wo
 
 Tango Basic is made of five steps taken to 8 counts of music. The rhythm is slow, slow, quick, quick, slow. The slow steps consume two beats of music and the quick steps one. Tango music is usually written in 4/4 time (but also in 2/4 time) and played at a tempo of 30-33 measures per minute.
 
-## Instructions & Diagrams:
+## Instructions 
 Tango is danced in a closed position, usually closer than in other dances. The man's left hand is holding the lady's right hand. His right hand is placed on her back, along the bottom of her ribcage. The lady's left hand is placed on his right shoulder. You always bent your knees. Remember, this dance is the most bent of all the ballroom dances. 
 
 The lead and follow mirror each others steps. The lead begins with the left foot, the follow with the right. Walks usually curve gradually to the left.
