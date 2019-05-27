@@ -37,9 +37,8 @@ The lead and follow mirror each others steps. The lead begins with the left foot
 4. Step back and to the left with your left foot
 5. Right foot close to left foot
 
-## Video
+## Video on YouTube
 In the following video Leon and Kim will show you slowly and from all angles how it's done. Ready, bend your knees, go: 
 
 [Tango dance steps - Tango basic steps for beginners](https://www.youtube.com/watch?v=PSTPuzGhhQM)
 
-If you found this lesson useful, you can find more of what we recommend [here](https://www.dancing4beginners.com/ballroom-dance-lessons/)
