@@ -1,5 +1,5 @@
 # Movies
-Movies and Serials I watched in 2019
+Movies and _Serials_ I watched in 2019
 
 ## Quick intro
 
@@ -8,7 +8,7 @@ Movies and Serials I watched in 2019
 ## Movies 
 
 ### Godfather 3
-I watched it when I was 10. 
+I watched it when I was 17. 
 
 ## Serials
 
